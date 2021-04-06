@@ -1,2 +1,2 @@
 # southwark-sun
-Fashion shoots of Charlene Francois
+Fashion shoots with model Charlene Francois
